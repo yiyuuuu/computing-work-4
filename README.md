@@ -1,3 +1,3 @@
 # computing-work
 **isabelle cheah**
-*~ DuNmAn HiGh ScHoOl*
+*DuNmAn HiGh ScHoOl*
