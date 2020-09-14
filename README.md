@@ -1,6 +1,4 @@
 # computing-work
 **isabelle cheah**
 
-*dhs '20*
-
-*swimming*
+*dunman high school '20 // swimming*
